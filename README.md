@@ -25,4 +25,6 @@ Repent and believe the gospel.
 
 He committed no sin neither was deceit found in His mouth. When He was reviled, He did not revile in return, when He suffered, He did not threaten but continuedentrusting Himself to Him who judges justly.
 
+In the beginning was the Word, and the Word was with God and Word was God.
+
 Copyright 2024 Samuel Baker
