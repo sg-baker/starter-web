@@ -12,6 +12,9 @@ riches of His grace in kindness toward us in Christ Jesus.
 
 ## Purpose
 
+For by grace you have been saved through faith, and this is not your own doing;
+it is the gift of God, not a result of works so that no man may boast.
+
 ## Deployment
 
 ## How To Contribute
