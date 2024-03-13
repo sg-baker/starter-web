@@ -17,4 +17,6 @@ it is the gift of God, not a result of works so that no man may boast.
 
 ## Deployment
 
+For we are His workmanship, created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them.
+
 ## How To Contribute
