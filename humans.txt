@@ -3,11 +3,11 @@
 
 # TEAM
 
-    <name> -- <role> -- <twitter>
+  Samuel Baker samuel.baker@credrea.com
 
 # THANKS
 
-    <name>
+    Jesus of Nazareth
 
 # TECHNOLOGY COLOPHON
 
