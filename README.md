@@ -20,3 +20,7 @@ it is the gift of God, not a result of works so that no man may boast.
 For we are His workmanship, created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them.
 
 ## How To Contribute
+
+Repent and believe the gospel.
+
+He committed no sin neither was deceit found in His mouth. When He was reviled, He did not revile in return, when He suffered, He did not threaten but continuedentrusting Himself to Him who judges justly.
