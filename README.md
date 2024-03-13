@@ -6,6 +6,8 @@ Our God is in the heavens; He does all that He pleases.
 
 He was pierced for our transgressions, He was crushed for our iniquities.
 
+Upon Him was the chastisement that brought us peace, and by His wounds we are healed.
+
 But God, being rich in mercy, because of the great love with which
 He loved us, even when we were dead in our trespasses, made us
 alive together with Christ - by grace you have been saved.
