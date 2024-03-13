@@ -24,3 +24,5 @@ For we are His workmanship, created in Christ Jesus for good works, which God pr
 Repent and believe the gospel.
 
 He committed no sin neither was deceit found in His mouth. When He was reviled, He did not revile in return, when He suffered, He did not threaten but continuedentrusting Himself to Him who judges justly.
+
+Copyright 2024 Samuel Baker
